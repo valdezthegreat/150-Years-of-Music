@@ -15,11 +15,11 @@ Wilmarth: Prof, dept of history He could tell us more about this amulet thingy. 
 He's gonna look at the amulet, figure some shit
 
 
-Wilbur: 9ft tall, poor, not wearing a hat
+Wilbur: 9ft tall, smells poor, not wearing a hat
 
 
 Going to mayors: We need a permit
-urchin kid: dindu nuffin. DEFINITELY a loser. fuck that kid.
+urchin kid: DEFINITELY a loser. fuck that kid.
 We get a permit BUT ITs A FUGAZI
 oh yeah the password to the boarded up place is NOT "FUCK"
 
@@ -38,4 +38,4 @@ Then he shoos us out so he can talk to the shadow goverment (LITERALLY FUCKING S
 
 Matay saw something that made him cry, but he still did ok against the cultists. Dave and Ulfjizz made stew with their weapons. I hope the Health & Safety guys don't come down here.
 
-We ended up outside the city gates in the end. We will have to decide whether to go back in or head down the river. I literally don't care, they will still find me. 
+We ended up outside the city gates in the end. We will have to decide whether to go back in or head down the river. I literally don't care, they will still find me.
